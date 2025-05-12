@@ -10,4 +10,4 @@
 
  <div align="center">
 
-[divider credits](https://www.tumblr.com/revivalrequiem/739690226305417216/koi-fish-themed-koi-fish-set-free-to-use?source=share)
+[divider credits](https://www.tumblr.com/luigraphics/742500122247806976/minecraft-themed-banner-masks-if-you-like-or-use?source=share)
