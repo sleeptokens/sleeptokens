@@ -10,4 +10,4 @@
 
  <div align="center">
 
-vera was here 💚 [divider credits](https://www.tumblr.com/luigraphics/742500122247806976/minecraft-themed-banner-masks-if-you-like-or-use?source=share)
+vera was here 🩵 [divider credits](https://www.tumblr.com/luigraphics/742500122247806976/minecraft-themed-banner-masks-if-you-like-or-use?source=share)
