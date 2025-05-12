@@ -4,7 +4,7 @@
 
 <p align="center"> <img src="https://i.postimg.cc/VNsQKWRZ/rohan.png" width="320" </p> 
 
- <p align="center"> ivan 🪼 kar <br> he ノ they !
+ <p align="center"> IVAN 🪼 KAR <br> he ノ they !
 
  <p align="center"> <img src="https://i.postimg.cc/x83XVPwJ/nene.png" width="450" </p>
 
