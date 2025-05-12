@@ -4,10 +4,10 @@
 
 <p align="center"> <img src="https://i.postimg.cc/VNsQKWRZ/rohan.png" width="320" </p> 
 
- <p align="center"> ivan [🪼] kar _ THERE do not touch br <br> he ノ they ! < HERE
+ <p align="center"> ivan 🪼 kar <br> he ノ they !
 
  <p align="center"> <img src="https://i.postimg.cc/x83XVPwJ/nene.png" width="450" </p>
 
  <div align="center">
 
-vera was here -emoji/symbol here- <HERE!!!!!!!! [divider credits](https://www.tumblr.com/luigraphics/742500122247806976/minecraft-themed-banner-masks-if-you-like-or-use?source=share)
+vera was here 💚 [divider credits](https://www.tumblr.com/luigraphics/742500122247806976/minecraft-themed-banner-masks-if-you-like-or-use?source=share)
