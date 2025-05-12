@@ -4,7 +4,7 @@
 
 <p align="center"> <img src="https://i.postimg.cc/VNsQKWRZ/rohan.png" width="320" </p> 
 
- <p align="center"> name [emoji or symbol] name _ THERE do not touch br <br> prn ノ prn ! < HERE
+ <p align="center"> ivan [🪼] kar _ THERE do not touch br <br> he ノ they ! < HERE
 
  <p align="center"> <img src="https://i.postimg.cc/x83XVPwJ/nene.png" width="450" </p>
 
